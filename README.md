@@ -173,6 +173,8 @@
 
 ## Глава 3
 
+Sabina woke up slightly earlier then alarm. Morning was cloudy. She had a physics class, math and CAD workshop scheduled for today.
+
 
 
 
