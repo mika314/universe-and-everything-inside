@@ -179,7 +179,7 @@ I decided to start a book. I started it in Russian, but I think it is better to 
 
 Sabina woke up slightly earlier then alarm. Morning was cloudy. She had a physics class, math and CAD workshop scheduled for today.
 
-Girl went to the kitchen and made her breakfast. 
+Girl went to the kitchen and made her breakfast.   
 
 
 1.2.1.2.1.1.1.1.1.1.2 Сан-Франциско
