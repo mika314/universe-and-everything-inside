@@ -1,5 +1,9 @@
-# Вселенная и все что внутри
+# Universe and everything inside
 
+Hi, everyone,
+
+
+I decided to start a book. I started it in Russian, but I think it is better to have it in English. I would need a lot of help with editing, my English is not good. Please help me with edit.
 
 
 1 Местное сверскопление
@@ -175,7 +179,7 @@
 
 Sabina woke up slightly earlier then alarm. Morning was cloudy. She had a physics class, math and CAD workshop scheduled for today.
 
-
+Girl went to the kitchen and made her breakfast. 
 
 
 1.2.1.2.1.1.1.1.1.1.2 Сан-Франциско
