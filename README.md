@@ -29,184 +29,237 @@
 
 ## Chapter 1
 
-The universe is enormous and populated with wondrous creatures. Take John, for example. He is sleeping and smiling in his sleep. He has black hair, a potato-shaped nose, and funny round ears. The young man lies down on the bed and hides under a purple blanket with a diamond pattern.
+The universe is enormous and populated with wondrous creatures. Take
+John, for example. He is sleeping and smiling in his sleep. He has
+black hair, a potato-shaped nose, and funny round ears. The young man
+lies down on the bed and hides under a purple blanket with a diamond
+pattern.
 
-7 o'clock in the morning. The radio alarm turns on, and the morning sun fills the room.
+7 o'clock in the morning. The radio alarm turns on, and the morning
+sun fills the room.
 
 The young man wakes up and goes to brush his teeth.
 
-John is studying at the university. He is going to become a car designer. Today, he has math, chemistry, and English classes.
+John is studying at the university. He is going to become a car
+designer. Today, he has math, chemistry, and English classes.
 
-A young man goes to the kitchen to make breakfast. He makes fried eggs sunny side up, a PB&J sandwich, and a cup of black tea.
+A young man goes to the kitchen to make breakfast. He makes fried eggs
+sunny side up, a PB&J sandwich, and a cup of black tea.
 
 After finishing the tea, he was thinking:
 
-"Do I really need to go to math classes? Can I skip math and go to chemistry and English?"
+"Do I really need to go to math classes? Can I skip math and go to
+chemistry and English?"
 
 John decided to skip math and go to bed for a nap.
 
-At 11 o'clock in the morning, the sun's rays filled the room. The young man opened his eyes.
+At 11 o'clock in the morning, the sun's rays filled the room. The
+young man opened his eyes.
 
-"Am I making it in time for chemistry? Looks like it is too late. Chemistry classes start at 11:15; I am going to be late." - this thought flies through the head of the young man.
+"Am I making it in time for chemistry? Looks like it is too
+late. Chemistry classes start at 11:15; I am going to be late." - this
+thought flies through the head of the young man.
 
 He decided to skip chemistry classes, too.
 
-Someone rings the doorbell. John opens the door. Sabina stands on the porch. She is a blond girl with green eyes and an upturned nose.
+Someone rings the doorbell. John opens the door. Sabina stands on the
+porch. She is a blond girl with green eyes and an upturned nose.
 
-"Are you still at home? Did you decide to skip math, too?" asked Sabina.
+"Are you still at home? Did you decide to skip math, too?" asked
+Sabina.
 
 "I am skipping Chemistry, too," John replied.
 
 "Come on, let's go to Chemistry.
 
-John takes his backpack and puts a couple of notebooks and a pen inside.
+John takes his backpack and puts a couple of notebooks and a pen
+inside.
 
 "Let's go."
 
-Джон сидит на лекции по химии и усердно записывает за профессором. Доска изпечерена химическими формулами в нижнем правом углу мелкими буквами. У профессора странная особенность писать только в одном месте доски, и мелкими буквами, так что задний ряд ничего неможет прочитать.
+John sits in the chemistry class and diligently writes notes after the
+professor. The blackboard is filled with chemistry formulas on the
+bottom right side of the board with small writing. The professor has a
+strange habit of writing only on one side of the board with small
+text, so students in the back row cannot read anything.
 
-Сабина, что-то написала на маленькой бумашке, сложила бумашку пополам и придвинула Джону.
+Sabina writes something on the post-it note, folds the note in half,
+and slides it to John.
 
-"<3<3<3", было написано на бумажке.
+John unfolds the note: "<3<3<3"
 
-Джон посмотрел в глаза Сабине и улыбнулся. Она улыбнулась ему в ответ.
+John looks into Sabina's eyes and smiles. Sabina smiles back.
 
-На перерыве Джон и Сабина решили выйти на улицу и посидеть на лавке. Чуть-чуть подалеку на газоне лежали две кошки. Нежелись на солнышке.
+On the break between classes, John and Sabina decided to go outside
+and sit on the bench. Next to the bench, two cats lay on the lawn and
+enjoyed the sun.
 
-"Вот везет же им, не надо им учиться, лежат себе на солнышке", кивнула головой в сторону кошек Сабина.
+"Lucky cats, they don't need to study anything, just lying in the
+sun," Sabina nodded in the direction of the cats.
 
-"Раньше вот дикие собаки были, а теперь кошки", заметил Джон.
+"We had dogs, and now we have cats," John noted.
 
-"Ага, точно я как-то особо не обращала внимания, правда странно как-то".
+"Huh, that is true, I didn't notice it before, you're right, it is
+strange."
 
-Кошка лизнула себе лапу и перевернулась на другой бок.
+The cat licked its paw and then turned to the other side.
 
-После лекции по химии молодой человек и девушка пошли в кафетерию обедать. Джон взял себе бутерброд с сыром и вечиной и бутылку энергетической воды, Сабина взяла себе салат. Они сели за столик на улице.
+After classes, the young man and the girl went to the cafe for
+lunch. John picked a sandwich with cheese and bologna and a can of
+Monster drink. Sbina ordered a salad. They sat at a table outside the
+cafe.
 
-"Каждый раз когда профессор Шмит читает лекцию мне хочется спать.", пожалловался Джон.
+"Every time Professor Shmit reads his lectures, I am getting extremely
+sleepy," John complained.
 
-"Он наверное энергетический вампир", предположила Сабина.
+"He might be a vampire who is sucking the energy from people," Sabina
+suggested.
 
-"Чтобы было, если бы люди питались не едой, а информацией?"
+"What if people instead of eating normal food could get energy from
+information?"
 
-"Если бы мы питались информацией, у меня бы тогда возникла бы изжога от лекций Шмитта", хихикнула Сабина.
+"If we were ingesting information instead of normal food, I'd get a
+heartburn after lectures of Smith," Sabina chuckled.
 
-Джон хмыкнул солидарно.
+John chuckled.
 
-Оба замолчали и каждый погрузился в свои мысли и пережовывание еды.
+John and Sabina stopped talking and got into deep thought and chewing.
 
-"Вот ты утром про кошек говорил, посмотри во еще кошка прошла", кивнула Сабина в сторону проходящей кошки.
+"In the morning you mentioned cats, look, one more cat," Sabina nodded
+in the direction of the cat.
 
-"Гуляет сама по себе, странно как-то", ответил Джон.
+"Strange, stray cat," John replied.
 
-"А почему нам странно видеть кошку саму по себе, вот белок кругом полно, а мы на них внимания не обращаем особо"
+"Why is it strange to see a stray cat? We have squirrels around all
+the time and it feels normal."
 
-"Ну кошки же домашние животные, а белки дикие. Вот эта кошка ведет себя как дикая"
+"Hmm... cats are domesticated animals, and squirrels are wild, this
+cat behaves like a wild animal."
 
-"Угу", согласилась Сабина, и почесала кончик своего носа.
+"Mhm," Sabina agreed, and scratched the tip of her nose.
 
-Они опять замолчали.
+They stopped talking again.
 
-Занятия по английскому прошли незаметно. Сабина отвезла Джона домой, и сама поехала к себе.
+English classes passed without anything extraordinary. Sabina gave a
+ride to John to bring him home and then went home.
 
-"Кошки, что за дела с этими кошками", думала девушка.
 
-"Кошки, кошки, кошки", вертелись у нее в голове.
+"Cats. What's the deal with cats?", the girl thought.
 
-Загорелся желтый на светофоре, Сабина притормозила, чтобы остановиться. Загорелся красный.
+"Cats, cats, cats."
 
-С левой стороны остановился серебристый Порш. Девушка глянула в окно Порша. За рулем сидела пожилая женщина, с идеальной прической, макияжем и безупречном деловом костюме. Женщина глянула в глаза Сабине, слегка улыбнулась и кивнула. Загорелся зеленый. Порш повернул налево, Сабине надо было ехать прямо.
+Traffic light showed a yellow. Sabina started braking. Traffic light
+turned to red.
 
-Приехав к себе на квартиру, девушка разделась и пошла в ванную принимать душ. Выйдя из ванной, она накинула банный халат, взяла расчёску и стала расчесывать свои длинные белокурые волосы.
+On her left, a silver Porsche stopped. The girl looked in the
+Porsche's window. An old woman was sitting behind the wheel with a
+spotless hairdo, makeup, and spotless business suit. The woman looked
+into Sabina's eyes, slightly smiled, and nodded to her. The traffic
+light turned green. The Porsche turned left and Sabina proceeded
+forward.
 
-"ОК Гугол, включи вечерний плейлист", попросила девушка.
+The girl, upon arriving at her place, decided to take a shower. After
+showering, she put on a bathrobe and started brushing her long, blond,
+curly hair.
 
-Заиграла музыка. Персональный помощник от Гугла.
+"OK Google, play the evening playlist," the girl asked.
 
-Хотелось есть. Девушка пошла на кухню и стала варить спагетти. Закинула ингредиенты соуса на сковородку, нашла в холодильнике стринговый сыр и стала его потихоньку жевать.
+Music started playing.
 
-Пришла СМСка он Джона:
+She felt hungry, so the girl went to the kitchen and started making
+spaghetti. She put sauce on the pan, then found a string cheese in the
+fridge and started nibbling on it.
 
-"Доехала до дома? Что делаешь?"
+There is a text message from John:
 
-"Спагетти", ответила девушка.
+"How did you get home? What do you do?"
 
-"Ясно, я книжку читаю"
+"Spaghetti", the girl replied.
 
-"Что читаешь?"
+"Got it, I am reading a book"
 
-"Дети капитана Гранта :)"
+"What do you read?"
 
-"Что это на тебя нашло?"
+"Captain Grant's children"
 
-"Да вот, захотелось, ладно буду читать, просто хотел узнать, нормально добралась до дома"
+"That's an interesting choice."
 
-"Я тут на светофоре интересную женщину в серебристом Порше видела, не знаю, что мне в ней такое запало. Она мне головой кивнула, почему-то"
+"Yep, for some reason I wanted to read that book, anyhow I'll
+continueto read. Just wanted to check if you arrived home safely."
 
-"Интересно"
+"Something interesting happened at the traffic light. I saw a woman in
+a silver Porsche, and for some reason I'm still thinking about her; I
+have no idea why. She nodded to me, for some reason."
 
-"И кошки эти"
+"Interesing."
 
-"Кошки, кошки, кошки. Ладно я читать буду XOXO"
+"And cats."
 
-Спагетти сварились, Сабина переложила их на тарелку и полила соусом.
+"Cats, cats, cats, cats. Okey, I'll read XOXO"
 
-Из мини Гугла играла Тейлор Свифт. 
+Spaghetti finished cooking. Sabina put it on the plate and covered it
+with the sauce.
 
-"ОК Гугол, стоп"
+Google Mini plays Taylor Swift.
 
-Музыка отключилась. Сабина взяла пуль от телевизора и стала выбирать что посмотреть на Нетфликсе.
+"OK Google, stop"
 
-Доев спагетти, девушка сама не заметив заснула. Проснулась часа чеез два, положила посуду в посудомоечнкю машину.
+Music stopped. Sbina took the remote and started looking what to watch
+on Netflix.
 
-И легла спасть к себе в постель.
+She finished her spaghetti and fell asleep without noticing it. She
+woke up at 2 in the night, put the plate in the dishwasher, and went
+back to bed.
 
-## Глава 2
+## Chapter 2
 
-Мяу, мяу! Орали кошки под окном. Сабина встала и закрыла окно, чтобы как-то приглушить орание кошек.
+Mew, mew! Cats were yowling outside. Sabina closed the window trying
+to muffle the cats' yowling.
 
-## Глава 3
+## Chapter 3
 
-Sabina woke up slightly earlier then alarm. Morning was cloudy. She had a physics class, math and CAD workshop scheduled for today.
+Sabina woke up slightly earlier than her alarm. The morning was
+cloudy. She had a physics class, math, and CAD workshop scheduled for
+today.
 
-Girl went to the kitchen and made her breakfast.   
+She went to the kitchen and made her breakfast.
 
 
-1.2.1.2.1.1.1.1.1.1.2 Сан-Франциско
+1.2.1.2.1.1.1.1.1.1.2 San Francisco
 
-1.2.1.2.1.1.1.1.1.1.3 Сан-Диего
+1.2.1.2.1.1.1.1.1.1.3 San Diego
 
-1.2.1.2.1.1.1.1.1.2 Аляска
+1.2.1.2.1.1.1.1.1.2 Alaska
 
-1.2.1.2.1.1.1.1.1.3 Миннесота
+1.2.1.2.1.1.1.1.1.3 Minnesota
 
-1.2.1.2.1.1.1.1.2 Канада
+1.2.1.2.1.1.1.1.2 Canada
 
-1.2.1.2.1.1.1.1.3 Мексика
+1.2.1.2.1.1.1.1.3 Mexico
 
-1.2.1.2.1.1.1.2 Европа
+1.2.1.2.1.1.1.2 Europe
 
-1.2.1.2.1.1.1.2.1 Англия
+1.2.1.2.1.1.1.2.1 England
 
-1.2.1.2.1.1.1.2.1 Испания
+1.2.1.2.1.1.1.2.1 Spain
 
-1.2.1.2.1.1.1.2.1 Германия
+1.2.1.2.1.1.1.2.1 Germany
 
-1.2.1.2.1.1.1.3 Антарктида
+1.2.1.2.1.1.1.3 Antarctica
 
-1.2.1.2.1.1.1.3 Луна
+1.2.1.2.1.1.1.3 Moon
 
-1.2.1.2.1.1.2 Марс
+1.2.1.2.1.1.2 Mars
 
-1.2.1.2.1.1.2.1 Фобос
+1.2.1.2.1.1.2.1 Fobos
 
-1.2.1.2.1.1.2.2 Даймос
+1.2.1.2.1.1.2.2 Daimos
 
-1.2.1.2.1.1.3 Плутон
+1.2.1.2.1.1.3 Pluto
 
 1.2.1.2.1.2 Альфа Центавра
 
-1.2.1.2.1.3 Вега
+1.2.1.2.1.3 Vega
 
 1.2.1.2.2 Рукав Стрельца
 
@@ -250,37 +303,34 @@ Girl went to the kitchen and made her breakfast.
 
 
 
-Список рас:
+Races list:
 
-Земля: Люди, кошки, пингвины
+Earth: human, cats, pinguins
 
-Марс: Марсиане классические, люди начиная с 2313, белые медведи
+Mars: classical marsians, human starting from 2313, polar bears
 
-Плутон: Плутоняне, пингвины, люди начиная с 2715
+Pluto: Plutonianes, pinguns, human starting from 2715
 
 
-Время: настоящее 2015, средние века 1354, ледниковый период 2,543,110 год до н.э., 3030 год, 
+Time: current time 2015, middle ages 1354, ice age 2,543,110 year
+b.c., year 3030,
 
-Ценности: учеба, любовь, взаимовыручка.
+Values: knowledge, love, mutual assistance.
 
-Школа
+School
 
-Университет
+University
 
-Персонажи
+Characters
 
-Школьники:
-Аня, Лена, Дэн.
+Highschool students: Anna, Lena, Dan.
 
-Мама Ани Клава
+Anna's mom Claudy
 
-Студенты:
-Алладин, Мухаммед, Эльвира.
+University Students: Aladdin, Muhammad, Elvira.
 
-Шахтеры:
-Рональд, Ричард, Корнелиус.
+Miners: Ronald, Richard, and Cornelius.
 
-Кот Вася
+Cat: Vasia
 
-Ледниковый период - рассвет цивилизации пингвинов и белых медведей
-
+Ice Age - pinnacle of penguins and polar bears civilization
