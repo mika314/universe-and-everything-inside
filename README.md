@@ -1,10 +1,5 @@
 # Universe and everything inside
 
-Hi, everyone,
-
-
-I decided to start a book. I started it in Russian, but I think it is better to have it in English. I would need a lot of help with editing, my English is not good. Please help me with edit.
-
 
 1 Местное сверскопление
 
@@ -32,46 +27,41 @@ I decided to start a book. I started it in Russian, but I think it is better to 
 
 1.2.1.2.1.1.1.1.1.1.1 Лос-Анджелес
 
-## Глава 1
+## Chapter 1
 
-Вселенная огромна и населена различными удивительными созданиями.
-Например, Джон.
-Сейчас он спит и чему-то улыбается во сне.
-У него черные волосы, нос картошкой и смешные круглые уши.
-Молодой человек лежит на кровати и накрыт сиреневым одеялом в ромбиками.
+The universe is enormous and populated with wondrous creatures. Take John, for example. He is sleeping and smiling in his sleep. He has black hair, a potato-shaped nose, and funny round ears. The young man lies down on the bed and hides under a purple blanket with a diamond pattern.
 
-Семь часов утра.
-Включилось радио у будильника. Утренне солнце заглянуло в комнату.
+7 o'clock in the morning. The radio alarm turns on, and the morning sun fills the room.
 
-Юноша встал и пошел чистить зубы.
+The young man wakes up and goes to brush his teeth.
 
-Джон учится в университете на первом курсе. Он учится на дизайнера машин. Сегодня среда, у него математика, химия и английский.
+John is studying at the university. He is going to become a car designer. Today, he has math, chemistry, and English classes.
 
-Молодой человек пошел на кухну чтобы приготовить завтрак. Яишница глазунья, тост с вареньем и орахисовым маслом. Чай.
+A young man goes to the kitchen to make breakfast. He makes fried eggs sunny side up, a PB&J sandwich, and a cup of black tea.
 
-После того как он допил чай он стал думать.
+After finishing the tea, he was thinking:
 
-"А нужно ли мне идти на математику? Я могу пропустить математику и пойти только на химию и английский."
+"Do I really need to go to math classes? Can I skip math and go to chemistry and English?"
 
-Джон решил пропустить математику и лег на кровать покимарить.
+John decided to skip math and go to bed for a nap.
 
-11 утра, лучи солнца заливают комнату. Юноша открыл глаза.
+At 11 o'clock in the morning, the sun's rays filled the room. The young man opened his eyes.
 
-"Я успеваю ли я на химию? Похоже, что слишком поздно, химия начинается в 11:13, я точно не успеваю", такие мысли пролетели в голове у юноши.
+"Am I making it in time for chemistry? Looks like it is too late. Chemistry classes start at 11:15; I am going to be late." - this thought flies through the head of the young man.
 
-Он решил пропустить химию тоже.
+He decided to skip chemistry classes, too.
 
-В дверь позвонили. Джон открыл дверь. На пороге стояла Сабина. Белокурая девушка с зелеными глазами и вздернутым носиком.
+Someone rings the doorbell. John opens the door. Sabina stands on the porch. She is a blond girl with green eyes and an upturned nose.
 
-"Ты еще дома? Математику тоже решил пропустить?", сказала Сабина.
+"Are you still at home? Did you decide to skip math, too?" asked Sabina.
 
-"Я и химию подумываю прогулять", отозвался Джон.
+"I am skipping Chemistry, too," John replied.
 
-"Да ладно тебе, пошли на химию"
+"Come on, let's go to Chemistry.
 
-Джон взял рюкзак, закинул туда пару тетрадок и ручку.
+John takes his backpack and puts a couple of notebooks and a pen inside.
 
-"Пошли".
+"Let's go."
 
 Джон сидит на лекции по химии и усердно записывает за профессором. Доска изпечерена химическими формулами в нижнем правом углу мелкими буквами. У профессора странная особенность писать только в одном месте доски, и мелкими буквами, так что задний ряд ничего неможет прочитать.
 
