@@ -184,8 +184,8 @@ There is a text message from John:
 
 "That's an interesting choice."
 
-"Yep, for some reason I wanted to read that book, anyhow I'll
-continueto read. Just wanted to check if you arrived home safely."
+"Yep, for some reason I wanted to read that book, anyway I'll continue
+to read. Just wanted to check if you arrived home safely."
 
 "Something interesting happened at the traffic light. I saw a woman in
 a silver Porsche, and for some reason I'm still thinking about her; I
@@ -204,8 +204,8 @@ Google Mini plays Taylor Swift.
 
 "OK Google, stop"
 
-Music stopped. Sbina took the remote and started looking what to watch
-on Netflix.
+Music stopped. Sabina took the remote and started looking at what to
+watch on Netflix.
 
 She finished her spaghetti and fell asleep without noticing it. She
 woke up at 2 in the night, put the plate in the dishwasher, and went
@@ -259,9 +259,9 @@ cautiously came forward, sniffing her fingers before rubbing its face
 against her hand. "Why are there so many of you around lately?" she
 whispered to the cat, smiling.
 
-The journey to the university was uneventful, but her mind
-raced with theories about the sudden surge of cats in the city. Could
-there be an event or phenomenon causing this?
+The journey to the university was uneventful, but her mind raced with
+theories about the sudden surge of cats in the city. Could there be an
+event or phenomenon causing this?
 
 At university, John greeted Sabina with two cups of coffee in his
 hands. They sat at their usual spot in the courtyard, under an old oak
