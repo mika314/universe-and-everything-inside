@@ -276,6 +276,18 @@ from another dimension?"
 Sabina smirked, "Well, not exactly. But I have this weird feeling
 there's more to it."
 
+"Okay, let me hear it," John said, leaning forward.
+
+"I think there might be a connection between the cats and the strange
+noises at night. Maybe they're attracted to something in the city?
+Maybe they're trying to tell us something?" Sabina suggested.
+
+John shook his head, "That's ridiculous. Cats don't talk.  Besides,
+there are noises everywhere. It could be anything."
+
+"But what if it's not just any noise? What if it's a specific sound or
+frequency that the cats can hear?" Sabina persisted.
+
 1.2.1.2.1.1.1.1.1.1.2 San Francisco
 
 1.2.1.2.1.1.1.1.1.1.3 San Diego
