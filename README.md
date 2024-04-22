@@ -29,44 +29,31 @@
 
 ## Chapter 1
 
-The universe is enormous and populated with wondrous creatures. Take
-John, for example. He is sleeping and smiling in his sleep. He has
-black hair, a potato-shaped nose, and funny round ears. The young man
-lies down on the bed and hides under a purple blanket with a diamond
-pattern.
+The universe is enormous and populated with wondrous creatures. Take John, for example. He is sleeping and smiling in his sleep. He has black hair, a potato-shaped nose, and funny round ears. The young man lies down on the bed and hides under a purple blanket with a diamond pattern.
 
-7 o'clock in the morning. The radio alarm turns on, and the morning
-sun fills the room.
+7 o'clock in the morning. The sun rises over the horizon, and the world awakens. The birds chirp, and the wind whispers through the trees. The world is full of life. The radio alarm turns on, and the morning sun fills the room.
 
-The young man wakes up and goes to brush his teeth.
+The young man, John, wakes up and stretches. He yawns and rubs his eyes. He looks around the room and sees the familiar surroundings. He gets out of bed and puts on his slippers. He walks to the bathroom to wash his face and brush his teeth.
 
-John is studying at the university. He is going to become a car
-designer. Today, he has math, chemistry, and English classes.
+John is studying at the university. He is going to become a car designer. Today, he has math, chemistry, and English classes.
 
-A young man goes to the kitchen to make breakfast. He makes fried eggs
-sunny side up, a PB&J sandwich, and a cup of black tea.
+A young man goes to the kitchen to make breakfast. He opens the refrigerator and takes out a carton of milk, a loaf of bread, and a jar of jam. He makes a peanut butter and jelly sandwich and pours a glass of milk. He sits down at the table and eats his breakfast.
 
-After finishing the tea, he was thinking:
+After finishing breakfast, he was thinking:
 
-"Do I really need to go to math classes? Can I skip math and go to
-chemistry and English?"
+"Do I really need to go to math classes? Can I skip math and go to chemistry and English?"
 
 John decided to skip math and go to bed for a nap.
 
-At 11 o'clock in the morning, the sun's rays filled the room. The
-young man opened his eyes.
+At 11 o'clock in the morning, the sun's rays filled the room. The young man opened his eyes.
 
-"Am I making it in time for chemistry? Looks like it is too
-late. Chemistry classes start at 11:15; I am going to be late." - this
-thought flies through the head of the young man.
+"Am I making it in time for chemistry? Looks like it is too late. Chemistry classes start at 11:15; I am going to be late." - this thought flies through the head of the young man.
 
 He decided to skip chemistry classes, too.
 
-Someone rings the doorbell. John opens the door. Sabina stands on the
-porch. She is a blond girl with green eyes and an upturned nose.
+Someone rings the doorbell. John opens the door. Sabina stands on the porch. She is a blond girl with green eyes and an upturned nose.
 
-"Are you still at home? Did you decide to skip math, too?" asked
-Sabina.
+"Are you still at home? Did you decide to skip math, too?" asked Sabina.
 
 "I am skipping Chemistry, too," John replied.
 
@@ -77,98 +64,68 @@ inside.
 
 "Let's go."
 
-John sits in the chemistry class and diligently writes notes after the
-professor. The blackboard is filled with chemistry formulas on the
-bottom right side of the board with small writing. The professor has a
-strange habit of writing only on one side of the board with small
-text, so students in the back row cannot read anything.
+John sits in the chemistry class and diligently writes notes after the professor. The blackboard is filled with chemistry formulas on the bottom right side of the board with small writing. The professor has a strange habit of writing only on one side of the board with small text, so students in the back row cannot read anything.
 
-Sabina writes something on the post-it note, folds the note in half,
-and slides it to John.
+Sabina writes something on the post-it note, folds the note in half, and slides it to John.
 
 John unfolds the note: "<3<3<3"
 
 John looks into Sabina's eyes and smiles. Sabina smiles back.
 
-On the break between classes, John and Sabina decided to go outside
-and sit on the bench. Next to the bench, two cats lay on the lawn and
-enjoyed the sun.
+On the break between classes, John and Sabina decided to go outside and sit on the bench. Next to the bench, two cats lay on the lawn and enjoyed the sun.
 
-"Lucky cats, they don't need to study anything, just lying in the
-sun," Sabina nodded in the direction of the cats.
+"Lucky cats, they don't need to study anything, just lying in the sun," Sabina nodded in the direction of the cats.
 
 "We had dogs, and now we have cats," John noted.
 
-"Huh, that is true, I didn't notice it before, you're right, it is
-strange."
+"Huh, that is true, I didn't notice it before, you're right, it is strange."
 
 The cat licked its paw and then turned to the other side.
 
-After classes, the young man and the girl went to the cafe for
-lunch. John picked a sandwich with cheese and bologna and a can of
-Monster drink. Sbina ordered a salad. They sat at a table outside the
-cafe.
+After classes, the young man and the girl went to the cafe for lunch. John picked a sandwich with cheese and bologna and a can of Monster drink. Sbina ordered a salad. They sat at a table outside the cafe.
 
-"Every time Professor Shmit reads his lectures, I am getting extremely
-sleepy," John complained.
+"Every time Professor Shmit reads his lectures, I am getting extremely sleepy," John complained.
 
-"He might be a vampire who is sucking the energy from people," Sabina
-suggested.
+"He might be a vampire who is sucking the energy from people," Sabina suggested.
 
-"What if people instead of eating normal food could get energy from
-information?"
+"What if people instead of eating normal food could get energy from information?"
 
-"If we were ingesting information instead of normal food, I'd get a
-heartburn after lectures of Smith," Sabina chuckled.
+"If we were ingesting information instead of normal food, I'd get a heartburn after lectures of Smith," Sabina chuckled.
 
 John chuckled.
 
 John and Sabina stopped talking and got into deep thought and chewing.
 
-"In the morning you mentioned cats, look, one more cat," Sabina nodded
-in the direction of the cat.
+"In the morning you mentioned cats, look, one more cat," Sabina nodded in the direction of the cat.
 
 "Strange, stray cat," John replied.
 
-"Why is it strange to see a stray cat? We have squirrels around all
-the time and it feels normal."
+"Why is it strange to see a stray cat? We have squirrels around all the time and it feels normal."
 
-"Hmm... cats are domesticated animals, and squirrels are wild, this
-cat behaves like a wild animal."
+"Hmm... cats are domesticated animals, and squirrels are wild, this cat behaves like a wild animal."
 
 "Mhm," Sabina agreed, and scratched the tip of her nose.
 
 They stopped talking again.
 
-English classes passed without anything extraordinary. Sabina gave a
-ride to John to bring him home and then went home.
+English classes passed without anything extraordinary. Sabina gave a ride to John to bring him home and then went home.
 
 
 "Cats. What's the deal with cats?", the girl thought.
 
 "Cats, cats, cats."
 
-Traffic light showed a yellow. Sabina started braking. Traffic light
-turned to red.
+Traffic light showed a yellow. Sabina started braking. Traffic light turned to red.
 
-On her left, a silver Porsche stopped. The girl looked in the
-Porsche's window. An old woman was sitting behind the wheel with a
-spotless hairdo, makeup, and spotless business suit. The woman looked
-into Sabina's eyes, slightly smiled, and nodded to her. The traffic
-light turned green. The Porsche turned left and Sabina proceeded
-forward.
+On her left, a silver Porsche stopped. The girl looked in the Porsche's window. An old woman was sitting behind the wheel with a spotless hairdo, makeup, and spotless business suit. The woman looked into Sabina's eyes, slightly smiled, and nodded to her. The traffic light turned green. The Porsche turned left and Sabina proceeded forward.
 
-The girl, upon arriving at her place, decided to take a shower. After
-showering, she put on a bathrobe and started brushing her long, blond,
-curly hair.
+The girl, upon arriving at her place, decided to take a shower. After showering, she put on a bathrobe and started brushing her long, blond, curly hair.
 
 "OK Google, play the evening playlist," the girl asked.
 
 Music started playing.
 
-She felt hungry, so the girl went to the kitchen and started making
-spaghetti. She put sauce on the pan, then found a string cheese in the
-fridge and started nibbling on it.
+She felt hungry, so the girl went to the kitchen and started making spaghetti. She put sauce on the pan, then found a string cheese in the fridge and started nibbling on it.
 
 There is a text message from John:
 
@@ -184,12 +141,9 @@ There is a text message from John:
 
 "That's an interesting choice."
 
-"Yep, for some reason I wanted to read that book, anyway I'll continue
-to read. Just wanted to check if you arrived home safely."
+"Yep, for some reason I wanted to read that book, anyway I'll continue to read. Just wanted to check if you arrived home safely."
 
-"Something interesting happened at the traffic light. I saw a woman in
-a silver Porsche, and for some reason I'm still thinking about her; I
-have no idea why. She nodded to me, for some reason."
+"Something interesting happened at the traffic light. I saw a woman in a silver Porsche, and for some reason, I'm still thinking about her; I have no idea why. She nodded to me, for some reason."
 
 "Interesing."
 
@@ -197,107 +151,69 @@ have no idea why. She nodded to me, for some reason."
 
 "Cats, cats, cats, cats. Okey, I'll read XOXO"
 
-Spaghetti finished cooking. Sabina put it on the plate and covered it
-with the sauce.
+Spaghetti finished cooking. Sabina put it on the plate and covered it with the sauce.
 
-Google Mini plays Taylor Swift.
+Google Mini plays Taylor Swift."
 
 "OK Google, stop"
 
-Music stopped. Sabina took the remote and started looking at what to
-watch on Netflix.
+Music stopped. Sabina took the remote and started looking at what to watch on Netflix.
 
-She finished her spaghetti and fell asleep without noticing it. She
-woke up at 2 in the night, put the plate in the dishwasher, and went
-back to bed.
+She finished her spaghetti and fell asleep without noticing it. She woke up at 2 in the night, put the plate in the dishwasher, and went back to bed.
 
 ## Chapter 2
 
-Mew, mew! Cats were yowling outside. Sabina closed the window trying
-to muffle the cats' yowling.
+Meow, meow! Cats were yowling outside. Sabina closed the window, trying to muffle the cats' meowing.
 
 ## Chapter 3
 
-Sabina woke up slightly earlier than her alarm. The morning was
-cloudy. She had a physics class, math, and CAD workshop scheduled for
-today.
+Sabina woke up slightly earlier than her alarm. The morning was cloudy. She had a physics class, math, and CAD workshop scheduled for today.
 
-She went to the kitchen and made her breakfast. The kitchen was
-enveloped in a golden hue, the remnants of the rising sun peeking
-through the gaps of the clouds. The aroma of freshly brewed coffee
-filled the room as Sabina toasted some bread and scrambled a couple of
-eggs.
+She went to the kitchen and made her breakfast. The kitchen was enveloped in a golden hue, the remnants of the rising sun peeking through the gaps of the clouds. The aroma of freshly brewed coffee filled the room as Sabina toasted some bread and scrambled a couple of eggs.
 
-While eating her breakfast, she recalled the previous day's
-events. The mysterious old lady in the Porsche and the constant
-appearance of cats left her deep in thought. Was there any connection,
-or was it just a peculiar coincidence?
+While eating her breakfast, she recalled the previous day's events. The mysterious old lady in the Porsche and the constant appearance of cats left her deep in thought. Was there any connection, or was it just a peculiar coincidence?
 
-Once she finished her meal, Sabina quickly prepared her
-backpack. Inside, she had her physics textbook, a math notebook, a set
-of pencils and pens, her CAD laptop, and its charger.
+Once she finished her meal, Sabina quickly prepared her backpack. Inside, she had her physics textbook, a math notebook, a set of pencils and pens, her CAD laptop, and its charger.
 
 Her phone buzzed on the counter. It was a text from John.
 
 "Morning, early bird! Did those cats keep you up again?"
 
-She chuckled, replying, "Seems like it. They're becoming a regular
-nocturnal orchestra. Anyway, see you at university?"
+She chuckled, replying, "Seems like it. They're becoming a regular nocturnal orchestra. Anyway, see you at university?"
 
 "Absolutely. Coffee at 9?"
 
 "Sounds like a plan."
 
-Sabina left her apartment and walked to the car. The cool morning
-breeze ruffled her hair as she plugged in her earphones and began
-listening to a podcast about mysterious urban legends.
+Sabina left her apartment and walked to the car. The cool morning breeze ruffled her hair as she plugged in her earphones and began listening to a podcast about mysterious urban legends.
 
-Next to her parking spot, an older man sat feeding pigeons. Nearby, a
-tabby cat watched intently, its tail twitching occasionally. Sabina
-approached the cat, kneeling down and extending her hand. The cat
-cautiously came forward, sniffing her fingers before rubbing its face
-against her hand. "Why are there so many of you around lately?" she
-whispered to the cat, smiling.
+Next to her parking spot, an older man sat feeding pigeons. Nearby, a tabby cat watched intently, its tail twitching occasionally. Sabina approached the cat, kneeling down and extending her hand. The cat cautiously came forward, sniffing her fingers before rubbing its face against her hand. "Why are there so many of you around lately?" she whispered to the cat, smiling.
 
-The journey to the university was uneventful, but her mind raced with
-theories about the sudden surge of cats in the city. Could there be an
-event or phenomenon causing this?
+The journey to the university was uneventful, but her mind raced with theories about the sudden surge of cats in the city. Could there be an event or phenomenon causing this?
 
-At university, John greeted Sabina with two cups of coffee in his
-hands. They sat at their usual spot in the courtyard, under an old oak
-tree.
+At university, John greeted Sabina with two cups of coffee in his hands. They sat at their usual spot in the courtyard, under an old oak tree.
 
-"Have you ever wondered why there's been an increase in cat sightings
-recently?" Sabina began, taking a sip of her coffee.
+"Have you ever wondered why there's been an increase in cat sightings recently?" Sabina began, taking a sip of her coffee.
 
-John laughed, "You and your theories. What's next? The cats are spies
-from another dimension?"
+John laughed, "You and your theories. What's next? The cats are spies from another dimension?"
 
-Sabina smirked, "Well, not exactly. But I have this weird feeling
-there's more to it."
+Sabina smirked, "Well, not exactly. But I have this weird feeling there's more to it."
 
 "Okay, let me hear it," John said, leaning forward.
 
-"I think there might be a connection between the cats and the strange
-noises at night. Maybe they're attracted to something in the city?
-Maybe they're trying to tell us something?" Sabina suggested.
+"I think there might be a connection between the cats and the strange noises at night. Maybe they're attracted to something in the city? Maybe they're trying to tell us something?" Sabina suggested.
 
-John shook his head, "That's ridiculous. Cats don't talk.  Besides,
-there are noises everywhere. It could be anything."
+John shook his head, "That's ridiculous. Cats don't talk.  Besides, there are noises everywhere. It could be anything."
 
-"But what if it's not just any noise? What if it's a specific sound or
-frequency that the cats can hear?" Sabina persisted.
+"But what if it's not just any noise? What if it's a specific sound or frequency that the cats can hear?" Sabina persisted.
 
-John sighed, "You're really going to make me say it, aren't you? Fine.
-Let's go investigate. But if we don't find anything, you owe me a
-dinner. Deal?"
+John sighed, "You're really going to make me say it, aren't you? Fine. Let's go investigate. But if we don't find anything, you owe me a dinner. Deal?"
 
 Sabina grinned, "Deal."
 
-That night, they set out to explore the city. They walked for hours,
-listening intently for any unusual sounds or patterns. As midnight
-approached, Sabina felt a strange sense of anticipation. She couldn't
-shake off the feeling that something was about to happen.
+That night, they set out to explore the city. They walked for hours, listening intently for any unusual sounds or patterns. As midnight approached, Sabina felt a strange sense of anticipation. She couldn't shake off the feeling that something was about to happen.
+
+"John, do you hear that?" she whispered, her eyes fixed on a nearby
 
 1.2.1.2.1.1.1.1.1.1.2 San Francisco
 
