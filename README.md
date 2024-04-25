@@ -308,6 +308,16 @@ John looked at the cat again, and this time, he saw something strange. The cat w
 
 The cat stood up and started walking towards them. Sabina felt a strange sensation in her head, as if she was being pulled towards the cat. They followed the cat, which led them to a strange, glowing portal. The portal was pulsing with energy, and Sabina could feel its power calling to her.
 
+Spoiler: Cats are intelligent creatures with intelligence 100% higher than the average human.
+
+Spoiler: A woman in a Porsche; her name is Sophia, who needs help from Sabina and John to save the world from an alien invasion. Sabina has a special ability to communicate with cats, and she is the only one who can help the woman in the Porsche, Sophia, to save the world. Sophia is the president of the Feline Council.
+
+Spoiler: orbs are a form of feline technology that can manipulate the world. They are used by the feline council to communicate with humans and to manipulate the world. The orbs are also used to heal and to protect humans.
+
+Spoiler: the university was empty that day because it was a holiday.
+
+Spoiler: the room with a cold metal table was a feline laboratory where they were conducting experiments on humans.
+
 1.2.1.2.1.1.1.1.1.1.2 San Francisco
 
 1.2.1.2.1.1.1.1.1.1.3 San Diego
