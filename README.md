@@ -59,8 +59,7 @@ Someone rings the doorbell. John opens the door. Sabina stands on the porch. She
 
 "Come on, let's go to Chemistry.
 
-John takes his backpack and puts a couple of notebooks and a pen
-inside.
+John takes his backpack and puts a couple of notebooks and a pen inside.
 
 "Let's go."
 
@@ -82,9 +81,9 @@ On the break between classes, John and Sabina decided to go outside and sit on t
 
 The cat licked its paw and then turned to the other side.
 
-After classes, the young man and the girl went to the cafe for lunch. John picked a sandwich with cheese and bologna and a can of Monster drink. Sbina ordered a salad. They sat at a table outside the cafe.
+After classes, the young man and the girl went to the café for lunch. John picked a sandwich with cheese and bologna and a can of Monster drink. Sabina ordered a salad. She sat at a table outside the café.
 
-"Every time Professor Shmit reads his lectures, I am getting extremely sleepy," John complained.
+"Every time Professor Smith reads his lectures, I am getting extremely sleepy," John complained.
 
 "He might be a vampire who is sucking the energy from people," Sabina suggested.
 
@@ -145,7 +144,7 @@ There is a text message from John:
 
 "Something interesting happened at the traffic light. I saw a woman in a silver Porsche, and for some reason, I'm still thinking about her; I have no idea why. She nodded to me, for some reason."
 
-"Interesing."
+"Interesting."
 
 "And cats."
 
@@ -153,7 +152,7 @@ There is a text message from John:
 
 Spaghetti finished cooking. Sabina put it on the plate and covered it with the sauce.
 
-Google Mini plays Taylor Swift."
+Google Mini plays Taylor Swift.
 
 "OK Google, stop"
 
@@ -213,7 +212,101 @@ Sabina grinned, "Deal."
 
 That night, they set out to explore the city. They walked for hours, listening intently for any unusual sounds or patterns. As midnight approached, Sabina felt a strange sense of anticipation. She couldn't shake off the feeling that something was about to happen.
 
-"John, do you hear that?" she whispered, her eyes fixed on a nearby
+"John, do you hear that?" she whispered, her eyes fixed on a nearby 24-hour diner.
+
+"What?" John asked, cocking his head to the side.
+
+"That... hum. It's so faint, but it's definitely there." Sabina's eyes sparkled with excitement.
+
+John listened more closely, and after a moment, he nodded. "Yeah, I hear it too."
+
+"What is it?" Sabina asked, her voice barely above a whisper.
+
+"I don't know, but I think we should follow it," John replied, his eyes scanning the surrounding area.
+
+As they walked closer to the diner, the hum grew louder. Sabina felt a shiver run down her spine. She knew that this was it – the moment they had been searching for.
+
+"John, look!" she exclaimed, pointing to the diner's neon sign.
+
+The letters "DINER" began to flicker, and the hum grew louder still. Sabina felt a strange energy emanating from the sign. It was as if the very fabric of reality was shifting.
+
+"What's happening?" John asked, his voice full of wonder.
+
+"I don't know, but I think we're about to find out," Sabina replied, her eyes fixed on the sign.
+
+And then, everything went black.
+
+## Chapter 4
+
+Sabina's eyes fluttered open to an unfamiliar, dimly lit room. She lay on a cold, metal table, her head throbbing. John was nowhere to be seen. The room was filled with strange, glowing orbs that seemed to be watching her, their eerie light casting an unsettling ambiance.
+
+"Hello?" Sabina called out, her voice trembling.
+
+The silence was deafening. The orbs continued to glow, their unblinking gaze fixed on her. Sabina tried to sit up, but a sharp pain pierced her head, forcing her back onto the table with a gasp.
+
+"John?" she whispered, her voice barely audible.
+
+The silence was oppressive. Sabina was alone, and the orbs were closing in. She felt a strange, tingling sensation in her fingers and toes as they slowly drifted towards her.
+
+"What's happening to me?" Sabina whispered, her voice full of fear.
+
+The orbs surrounded her, their energy building up inside her. Just as everything was about to go black, she saw a face - the woman from the Porsche, the one she had seen at the traffic light.
+
+## Chapter 5
+
+Sabina woke up in her own bed, surrounded by the comforting familiarity of her apartment. Her heart raced as she lay on her back, struggling to recall the events of the previous night. Fragments of memories lingered - the strange hum, the flickering sign, and the orbs - but the details were hazy.
+
+She wondered if she had really seen the woman or if it was just a hallucination. Sabina's mind swirled with questions, her thoughts racing to piece together the puzzle.
+
+Reaching for her phone, she saw a text from John.
+
+"Hey, how are you? I'm still trying to figure out what happened last night. Did you see anything?"
+
+Sabina's heart skipped a beat as she read the message. She hesitated for a moment before typing out a response.
+
+"I saw something. I'm not sure what it means, but I think we're in for something big."
+
+John's response was immediate.
+
+"Meet me at the university at 2 pm. We need to talk."
+
+Sabina nodded to herself, feeling a sense of determination wash over her. She knew that she and John had stumbled upon something incredible, something that could change their lives forever. The uncertainty only fueled her resolve to uncover the truth.
+
+As she drove to the university, Sabina couldn't shake off the feeling that something was off. She thought about the strange events of the previous night, the woman from the Porsche, and the cats. And then it hit her - she hadn't seen or heard any cats that morning. It was as if they had vanished into thin air.
+
+Sabina parked her car in the university parking lot and got out, looking around at the deserted campus. The university was quiet, with only a few students walking around. She spotted John waiting for her near the entrance.
+
+"Hi," John said, as Sabina approached him.
+
+"Hi," Sabina replied. "Do you remember what classes we have today? I forgot."
+
+"I think we have physics, math, and CAD workshop," Sabina replied.
+
+"Right," John said. "Let's go to the physics class first."
+
+As they walked to the physics class, Sabina noticed that the university was eerily empty. There were no students, no professors, no one. It was as if the university was abandoned.
+
+"John, where is everyone?" Sabina asked, feeling a sense of unease.
+
+"I don't know," John replied. "Maybe it's a holiday or something."
+
+Sabina looked around, her eyes scanning the deserted hallways. That's when she saw it - a cat sitting on a bench, staring at her. Sabina felt a strange sensation, as if the cat was trying to communicate with her.
+
+"John, look," Sabina said, pointing to the cat.
+
+John looked at the cat. "What about it?" he asked.
+
+"I think the cat is trying to tell us something," Sabina replied, her intuition kicking in.
+
+"What do you mean?" John asked, skeptical.
+
+"I don't know, but I feel it," Sabina said, her eyes locked on the cat.
+
+John looked at the cat again, and this time, he saw something strange. The cat was staring at Sabina with an almost human-like intensity.
+
+"Let's follow it," John said, his curiosity piqued.
+
+The cat stood up and started walking towards them. Sabina felt a strange sensation in her head, as if she was being pulled towards the cat. They followed the cat, which led them to a strange, glowing portal. The portal was pulsing with energy, and Sabina could feel its power calling to her.
 
 1.2.1.2.1.1.1.1.1.1.2 San Francisco
 
