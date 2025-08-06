@@ -1,19 +1,19 @@
 # Universe and everything inside
 
 
-1 Местное сверскопление
+1 Local Supercluster
 
-1.1 Сверхскопление Девы
+1.1 Virgo Supercluster
 
-1.2 Ме́стная гру́ппа гала́ктик
+1.2 Local Group of Galaxies
 
 1.2.1 Milky Way
 
-1.2.1.1 Звезда Стрелец А
+1.2.1.1 Star Sagittarius A
 
-1.2.1.2 Левая сторона
+1.2.1.2 Left side
 
-1.2.1.2.1 Рукав Ориона
+1.2.1.2.1 Orion's Arm
 
 1.2.1.2.1.1 Sun
 
@@ -29,15 +29,15 @@
 
 ## Chapter 1
 
-The universe is enormous and populated with wondrous creatures. Take John, for example. He is sleeping and smiling in his sleep. He has black hair, a potato-shaped nose, and funny round ears. The young man lies down on the bed and hides under a purple blanket with a diamond pattern.
+The universe is enormous and populated with wondrous creatures. John is sleeping and smiling in his sleep. He has black hair, a potato‑shaped nose, and funny round ears. The young man lies down on the bed and hides under a purple blanket with a diamond pattern.
 
-7 o'clock in the morning. The sun rises over the horizon, and the world awakens. The birds chirp, and the wind whispers through the trees. The world is full of life. The radio alarm turns on, and the morning sun fills the room.
+Seven o’clock in the morning. The sun rises over the horizon, and the world awakens. The birds chirp, and the wind whispers through the trees. The world is full of life. The radio alarm turns on, and the morning sun fills the room.
 
-The young man, John, wakes up and stretches. He yawns and rubs his eyes. He looks around the room and sees the familiar surroundings. He gets out of bed and puts on his slippers. He walks to the bathroom to wash his face and brush his teeth.
+John wakes up and stretches. He yawns and rubs his eyes. He looks around the room and sees the familiar surroundings. He gets out of bed and puts on his slippers. He walks to the bathroom to wash his face and brush his teeth.
 
-John is studying at the university. He is going to become a car designer. Today, he has math, chemistry, and English classes.
+John studies at the university. He is going to become a car designer. Today he has math, chemistry, and English classes.
 
-A young man goes to the kitchen to make breakfast. He opens the refrigerator and takes out a carton of milk, a loaf of bread, and a jar of jam. He makes a peanut butter and jelly sandwich and pours a glass of milk. He sits down at the table and eats his breakfast.
+A young man goes to the kitchen to make breakfast. He opens the refrigerator and takes out a carton of milk, a loaf of bread, and a jar of jam. He makes a peanut‑butter and jelly sandwich and pours a glass of milk. He sits down at the table and eats his breakfast.
 
 After finishing breakfast, he was thinking:
 
@@ -350,49 +350,44 @@ Spoiler: the room with a cold metal table was a feline laboratory where they wer
 
 1.2.1.2.1.1.3 Pluto
 
-1.2.1.2.1.2 Альфа Центавра
+1.2.1.2.1.2 Alpha Centauri
 
 1.2.1.2.1.3 Vega
 
-1.2.1.2.2 Рукав Стрельца
+1.2.1.2.2 Sagittarius Arm
 
-1.2.1.2.3 Рукав Персея
+1.2.1.2.3 Perseus Arm
 
-1.2.1.3 Правая сторона
+1.2.1.3 Right side
 
-1.2.1.3.1 Рукав Лебедя
+1.2.1.3.1 Cygnus Arm
 
-1.2.1.3.2 Рукав Центавра
+1.2.1.3.2 Centaurus Arm
 
-1.2.1.3.3 Темная зона
+1.2.1.3.3 Dark Zone
 
 
+1.2.2 Andromeda Nebula
 
-1.2.2 Туманность Андромеды
-
-1.2.2.1 Майалл II
+1.2.2.1 Mayall II
 
 1.2.2.2 PA-99-N2
 
-1.2.2.3 M 32
+1.2.2.3 M32
 
 1.2.2.4 Messier 110
 
-
-
-1.2.3 Галактика Треугольника
+1.2.3 Triangulum Galaxy
 
 1.2.3.1 M33 X-7
 
+Exposure
 
+Hook
 
-Экспозиция
+Development
 
-Завязка
-
-Развитие
-
-Кульминация и развязка
+Climax and Resolution
 
 
 
